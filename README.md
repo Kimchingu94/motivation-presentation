@@ -1,2 +1,0 @@
-# www.motivation.kimchingu.com
-
